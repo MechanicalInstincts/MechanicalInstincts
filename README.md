@@ -4,5 +4,5 @@
 ###     ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀                                                   ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀
 ####    ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀⠀ „I’m gonna make everyone wish they’d never met me." 
  ###    
-####              ⠀ ⠀ ⠀ ⠀           ⠀⠀ ⠀     ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ „Then im gonna die and go straigh to Hell."                                                           
+####              ⠀ ⠀ ⠀ ⠀           ⠀⠀ ⠀     ⠀ ⠀ ⠀ ⠀     ⠀ ⠀⠀ ⠀     ⠀ ⠀ ⠀ ⠀     ⠀ ⠀  „Then im gonna die and go straigh to Hell."                                                           
 ####              ⠀ ⠀ ⠀ ⠀           ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀                                                          
