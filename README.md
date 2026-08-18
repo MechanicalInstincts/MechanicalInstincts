@@ -2,7 +2,7 @@
 ##                      ⠀ ⠀ ⠀ ⠀ ⠀ $\color{#FFFFFF}{\textsf{I don’t check profiles so please lmk if I followed someone problematic}}$  ![image alt](https://github.com/MechanicalInstincts/MechanicalInstincts/blob/91ee43a65c778b98d22fe0565cda8fd07279bdc8/c438e218_original.gif)
 
 ###     ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀                                                   ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀
-####    ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀⠀     ⠀⠀⠀⠀    ⠀    ⠀„I’m gonna make everyone wish they’d never met me." 
+####    ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀⠀     ⠀⠀⠀⠀    ⠀    ⠀      „I’m gonna make everyone wish they’d never met me." 
  ###    
-####              ⠀ ⠀ ⠀ ⠀           ⠀⠀ ⠀     ⠀ ⠀ ⠀ ⠀         ⠀⠀⠀⠀⠀    ⠀    ⠀„Then im gonna die and go straigh to Hell."                                                           
+####              ⠀ ⠀ ⠀ ⠀           ⠀⠀ ⠀     ⠀ ⠀ ⠀ ⠀         ⠀⠀⠀⠀⠀    ⠀    ⠀      „Then im gonna die and go straigh to Hell."                                                           
 ####              ⠀ ⠀ ⠀ ⠀           ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀                                                          
