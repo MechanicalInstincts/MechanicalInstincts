@@ -4,7 +4,7 @@
 
 
 ###     ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀                                                   ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀
-####    ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀⠀     ⠀⠀⠀⠀    ⠀    ⠀               „I’m gonna make everyone wish they’d never met me." 
+####    ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀⠀     ⠀⠀⠀⠀    ⠀    ⠀               „Do you believe in Love at first sight? Do you believe in fate?" 
  ###    
-####              ⠀ ⠀ ⠀ ⠀           ⠀⠀ ⠀     ⠀ ⠀ ⠀ ⠀         ⠀⠀⠀⠀⠀    ⠀    ⠀               „Then im gonna die and go straigh to Hell."                                                           
+####              ⠀ ⠀ ⠀ ⠀           ⠀⠀ ⠀     ⠀ ⠀ ⠀ ⠀         ⠀⠀⠀⠀⠀    ⠀    ⠀               „I believe in good things, only come to those who wait."                                                           
 ####              ⠀ ⠀ ⠀ ⠀           ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀                                                          
