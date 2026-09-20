@@ -4,7 +4,7 @@
 
 
 ###     ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀                                                   ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀
-####    ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀⠀     ⠀⠀⠀⠀    ⠀    ⠀               „Do you believe in Love at first sight? Do you believe in fate?" 
+####    ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀⠀     ⠀⠀⠀⠀    ⠀    ⠀„Do you believe in Love at first sight? Do you believe in fate?" 
  ###    
-####              ⠀ ⠀ ⠀ ⠀           ⠀⠀ ⠀     ⠀ ⠀ ⠀ ⠀         ⠀⠀⠀⠀⠀    ⠀    ⠀               „I believe in good things, only come to those who wait."                                                           
+####              ⠀ ⠀ ⠀ ⠀           ⠀⠀ ⠀     ⠀ ⠀ ⠀ ⠀         ⠀⠀⠀⠀⠀    ⠀    ⠀  „I believe in good things, only come to those who wait."                                                           
 ####              ⠀ ⠀ ⠀ ⠀           ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀                                                          
