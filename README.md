@@ -8,3 +8,4 @@
  ###    
 ####              ⠀ ⠀ ⠀ ⠀           ⠀⠀ ⠀     ⠀ ⠀ ⠀ ⠀         ⠀⠀⠀⠀⠀    ⠀    ⠀  ⠀    ⠀        ⠀        ⠀        ⠀        ⠀           „It's okay I don't."                                                           
 ####              ⠀ ⠀ ⠀ ⠀           ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀                                                          
+###    ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀![image alt](https://github.com/MechanicalInstincts/MechanicalInstincts/blob/770a9a388c155d1748f94b30aae6ab33dda8cd8d/WhatsApp%20Image%202026-10-05%20at%2014.46.40.jpeg)
