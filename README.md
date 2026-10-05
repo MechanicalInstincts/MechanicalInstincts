@@ -4,7 +4,7 @@
 
 
 ###     ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀                                                   ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀
-####    ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀⠀     ⠀⠀⠀⠀    ⠀    ⠀„Do you believe in Love at first sight? Do you believe in fate?" 
+####    ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀⠀     ⠀⠀⠀⠀    ⠀    ⠀„It's okay if you'll exploit me!" 
  ###    
-####              ⠀ ⠀ ⠀ ⠀           ⠀⠀ ⠀     ⠀ ⠀ ⠀ ⠀         ⠀⠀⠀⠀⠀    ⠀    ⠀  „I believe in good things, only come to those who wait."                                                           
+####              ⠀ ⠀ ⠀ ⠀           ⠀⠀ ⠀     ⠀ ⠀ ⠀ ⠀         ⠀⠀⠀⠀⠀    ⠀    ⠀  „It's okay I don't."                                                           
 ####              ⠀ ⠀ ⠀ ⠀           ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀                                                          
